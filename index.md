@@ -1,4 +1,4 @@
-Ayaat:
+[Ayaat](ayaat.md)
 
 Ahadith:
 
