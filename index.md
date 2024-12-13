@@ -3,8 +3,12 @@
 ## Proofs:
 
 Ayaat:
+
 Ahadith:
+
 Athaar:
+
 Aqwaal:
+
 Intellectual Proofs:
 
